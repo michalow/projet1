@@ -1,5 +1,5 @@
 Paroles
-Tout l'monde est par terre avec A.B
+Tout l'monde est par terre avec A.B avec A.B.C
 Alphonse Brown
 Le digne descendant de J.B
 James Brown
